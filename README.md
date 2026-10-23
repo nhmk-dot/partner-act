@@ -1,1 +1,1 @@
-edit ni tars-bub
+ako na ulit toh si nhmk
