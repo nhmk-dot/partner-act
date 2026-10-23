@@ -1,1 +1,1 @@
-edit ni tars-bub
+edit ni tars
